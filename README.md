@@ -48,9 +48,9 @@ Hi! I’m **Tohid Islam**, a self-taught learner on a mission to become one of t
 ### 🌍 Connect With Me
 
 - 🧠 Discord: `tohid#1337`
-- 📷 Instagram: _Coming Soon_
+- 📷 Instagram: exa_tohid
 - 🧑‍💻 GitHub: [github.com/tohidcyber](https://github.com/tohidcyber) *(update this based on your GitHub username)*  
-- 📬 Email: _Coming Soon (ProtonMail / Gmail)_
+- 📬 Email: tohidx479@gmail.com(ProtonMail / Gmail)_
 
 ---
 
